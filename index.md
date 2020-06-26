@@ -11,3 +11,4 @@ Das Kanguruh ist ein kommunistisches Beuteltier, dass in den Buch Kanguruh Chron
 Das Kanguruh sagt immer
 > meins, Deins, das sind doch bürgerliche Kategorien
 > witzig oder nicht witzig
+<img src="https://cdn.pixabay.com/photo/2014/08/06/12/35/wallabies-411548_960_720.jpg"/>
