@@ -8,3 +8,6 @@ Das Kanguruh ist ein kommunistisches Beuteltier, dass in den Buch Kanguruh Chron
 * einfallsreich
 * witzig
 * manchmal nicht witzig
+Das Kanguruh sagt immer
+> meins, Deins, das sind doch bürgerliche Kategorien
+> witzig oder nicht witzig
